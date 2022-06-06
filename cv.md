@@ -9,3 +9,4 @@ I have been working as a sports reporter for 7 years already. It is time for me 
 English - C1
 Russian - mother tongue 
 German - B1
+Spanish - A2
